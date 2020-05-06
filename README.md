@@ -22,6 +22,8 @@ You account will be Pro for __Lifetime__ with "Subscription ~" and protect conte
 12. Website Copy Scanner (unlimited)
 13. Website Detective Tool
 14. Multiple Badge Management
+![Capture](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/picture.png)
+
 
 
 ### How to order?
@@ -29,6 +31,7 @@ You account will be Pro for __Lifetime__ with "Subscription ~" and protect conte
 
 
 ### How to check Pro or Not?
-Click Dashboard (upper right) ![Capture](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/picture.png)
+Click Dashboard (upper right) ![hello](https://rawcdn.githack.com/TrashGirl/-giveaway-/59dab142f1857dbafedc8a7aaa189c54616e3e71/pro%20dash.PNG)
+
 
 __note:__ After Pro registration, please __*logout*__ and than __*Login*__ again
