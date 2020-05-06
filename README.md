@@ -33,9 +33,3 @@ You account will be Pro for __Lifetime__ with "Subscription ~"
 Click Dashboard (upper right) ![Capture](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/picture.png)
 
 __note:__ After Pro registration, please __*logout*__ and than __*Login*__ again
-
-
-## Important!
-If you want leave comment, please don't write "DMCA, DMCA Pro, DMCA Account, all about DMCA" in comment section. 
-
-Write anything what you want, etc: I Like Pisang Goreng, I need pizza, This forum is awesome
