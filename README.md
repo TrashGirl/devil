@@ -31,7 +31,7 @@ You account will be Pro for __Lifetime__ with "Subscription ~" and protect conte
 
 
 ### How to check Pro or Not?
-Click Dashboard (upper right) ![hello](https://rawcdn.githack.com/TrashGirl/-giveaway-/59dab142f1857dbafedc8a7aaa189c54616e3e71/pro%20dash.PNG)
+Click Dashboard (upper right) ![hello](https://rawcdn.githack.com/TrashGirl/-giveaway-/59dab142f1857dbafedc8a7aaa189c54616e3e71/pro-dash.PNG)
 
 
 __note:__ After Pro registration, please __*logout*__ and than __*Login*__ again
