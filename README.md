@@ -1,13 +1,13 @@
-# Activate Account DMCA Pro Lifetime 
+## Activate Account DMCA Pro Lifetime 
 
 Upgrade you DMCA Account to be Pro with cheap price, only 10$ for __Lifetime__
 
-You account will be Pro for __Lifetime__ with "Subscription ~"
+You account will be Pro for __Lifetime__ with "Subscription ~" and protect content of you site
 
 ![hello](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/Capture2.JPG)
 
 
-## Features Account DMCA Pro
+### Features Account DMCA Pro
 1. Text Monitoring
 2. Image Monitoring
 3. 100+ Premium Badges
@@ -24,12 +24,11 @@ You account will be Pro for __Lifetime__ with "Subscription ~"
 14. Multiple Badge Management
 
 
-## How to order? stil edit........
-- [x] Send me login access you DMCA account, via private message.
-- [x] Send me login access you DMCA account, via private message.
-- [x] Wait and i will activate  ![smiley](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/smiley.png)
+### How to order?
+- [x] Send Personal Message for more detail
 
-## How to check Pro or Not?
+
+### How to check Pro or Not?
 Click Dashboard (upper right) ![Capture](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/picture.png)
 
 __note:__ After Pro registration, please __*logout*__ and than __*Login*__ again
