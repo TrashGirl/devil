@@ -23,9 +23,9 @@ You account will be Pro for __Lifetime__ with "Subscription ~"
 13. Website Detective Tool
 14. Multiple Badge Management
 
-
+stil edit........
 ## How to order?
-
+- [x] Send me login access you DMCA account, via private message.
 - [x] Send me login access you DMCA account, via private message.
 - [x] Wait and i will activate  ![smiley](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/smiley.png)
 
