@@ -26,11 +26,14 @@ You account will be Pro for __Lifetime__ with "Subscription ~" and protect conte
 
 
 ### How to order?
+Option 1
 - [x] Send Personal Message ( facebook: Erwin Pohan )
 - [x] Make payment
 - [x] Send login access Account DMCA, I will activate
 - [x] Done
 
+Option 2
+Buy my service from trust marketplace [Here](https://p-store.net/akun/45124/jual-dan-aktivasi-akun-dmca-pro-lifetime)
 
 ### How to check Pro or Not?
 Click Dashboard (upper right) ![hello](https://rawcdn.githack.com/TrashGirl/-giveaway-/8d20bf9a8fba27b4a2c97b379b2f30f54a415d1d/pro-dash.PNG)
