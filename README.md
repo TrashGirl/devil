@@ -27,7 +27,7 @@ You account will be Pro for __Lifetime__ with "Subscription ~" and protect conte
 
 
 ### How to order?
-- [x] Send Personal Message for more detail ( facebook:Erwin Pohan )
+- [x] Send Personal Message for more detail ( facebook: Erwin Pohan )
 
 
 ### How to check Pro or Not?
