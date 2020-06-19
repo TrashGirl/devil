@@ -27,8 +27,10 @@ You account will be Pro for __Lifetime__ with "Subscription ~" and protect conte
 
 
 ### How to order?
-- [x] Send Personal Message for more detail ( facebook: Erwin Pohan )
-
+- [x] Send Personal Message ( facebook: Erwin Pohan )
+- [x] Make payment
+- [x] Send login access Account DMCA, I will activate
+- [x] Done
 
 ### How to check Pro or Not?
 Click Dashboard (upper right) ![hello](https://rawcdn.githack.com/TrashGirl/-giveaway-/8d20bf9a8fba27b4a2c97b379b2f30f54a415d1d/pro-dash.PNG)
