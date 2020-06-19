@@ -1,4 +1,4 @@
-## Activate Account DMCA Pro Lifetime 
+## Open Reseller: Activate Account DMCA Pro Lifetime 
 
 Upgrade you DMCA Account to be Pro with cheap price, only 10$ for __Lifetime__
 
@@ -34,7 +34,7 @@ Option 1
 
 Option 2
 
-Buy my service from trust marketplace [Here](https://p-store.net/akun/45124/jual-dan-aktivasi-akun-dmca-pro-lifetime)
+- [x] Buy my service from trust marketplace [Here](https://p-store.net/akun/45124/jual-dan-aktivasi-akun-dmca-pro-lifetime)
 
 ### How to check Pro or Not?
 Click Dashboard (upper right) ![hello](https://rawcdn.githack.com/TrashGirl/-giveaway-/8d20bf9a8fba27b4a2c97b379b2f30f54a415d1d/pro-dash.PNG)
