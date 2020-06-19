@@ -1,6 +1,6 @@
 ## Open Reseller: Activate Account DMCA Pro Lifetime 
 
-Upgrade you DMCA Account to be Pro with cheap price, only 10$ for __Lifetime__
+Upgrade you DMCA Account to be Pro with cheap price, only $8 for __Lifetime__
 
 You account will be Pro for __Lifetime__ with "Subscription ~" and protect content of you site
 
