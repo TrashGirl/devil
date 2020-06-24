@@ -1,5 +1,9 @@
 ## Open Reseller: Upgrade Account DMCA Pro Lifetime 
 
+Let's make money together :)
+Buy from me, sell to another  $10 - $15
+
+
 Buy 1 = $8
 
 Buy 2 = $15
@@ -10,7 +14,7 @@ Buy 10 = $65
 
 ### How to order?
 #### Option 1
-- [x] Contact me via forum
+- [x] Contact me via forum (recommended)
 
 #### Option 2
 - [x] Send Personal Message ( facebook: [Erwin Pohan](https://p-store.net/akun/45124/jual-dan-aktivasi-akun-dmca-pro-lifetime) )
