@@ -1,8 +1,8 @@
-## Open Reseller: Activate Account DMCA Pro Lifetime 
+## Open Reseller: Upgrade Account DMCA Pro Lifetime 
 
-Upgrade you DMCA Account to be Pro with cheap price, only $8 for __Lifetime__
+Upgrade DMCA Account to be Pro with cheap price, only $8 for __Lifetime__
 
-You account will be Pro for __Lifetime__ with "Subscription ~" and protect content of you site
+Account will be Pro for __Lifetime__ with "Subscription ~" and protect you content
 
 ![hello](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/Capture2.JPG)
 
@@ -26,18 +26,15 @@ You account will be Pro for __Lifetime__ with "Subscription ~" and protect conte
 
 
 ### How to order?
-Option 1
-- [x] Send Personal Message ( facebook: Erwin Pohan )
+#### Option 1
+- [x] Contact me via forum
+
+#### Option 2
+- [x] Send Personal Message ( facebook: [Erwin Pohan](https://p-store.net/akun/45124/jual-dan-aktivasi-akun-dmca-pro-lifetime) )
 - [x] Make payment
-- [x] Send login access Account DMCA, I will activate
+- [x] Send login access Account DMCA, I will upgrade
 - [x] Done
 
-Option 2
-
+#### Option 3
 - [x] Buy my service from trust marketplace [Here](https://p-store.net/akun/45124/jual-dan-aktivasi-akun-dmca-pro-lifetime)
 
-### How to check Pro or Not?
-Click Dashboard (upper right) ![hello](https://rawcdn.githack.com/TrashGirl/-giveaway-/8d20bf9a8fba27b4a2c97b379b2f30f54a415d1d/pro-dash.PNG)
-
-
-__note:__ After Pro registration, please __*logout*__ and than __*Login*__ again
