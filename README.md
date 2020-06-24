@@ -1,11 +1,9 @@
 ## Open Reseller: Upgrade Account DMCA Pro Lifetime 
 
-Upgrade DMCA Account to be Pro with cheap price, only $8 for __Lifetime__
-
-Account will be Pro for __Lifetime__ with "Subscription ~" and protect you content
-
-![hello](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/Capture2.JPG)
-
+Buy 1 = $8
+Buy 2 = $15
+Buy 5 = $35
+Buy 10 = $65
 
 ### How to order?
 #### Option 1
