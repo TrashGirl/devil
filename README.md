@@ -1,8 +1,11 @@
 ## Open Reseller: Upgrade Account DMCA Pro Lifetime 
 
 Buy 1 = $8
+
 Buy 2 = $15
+
 Buy 5 = $35
+
 Buy 10 = $65
 
 ### How to order?
