@@ -7,24 +7,6 @@ Account will be Pro for __Lifetime__ with "Subscription ~" and protect you conte
 ![hello](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/Capture2.JPG)
 
 
-### Features Account DMCA Pro
-1. Text Monitoring
-2. Image Monitoring
-3. 100+ Premium Badges
-4. DIY DMCA Takedowns
-5. PDF Export Takedowns
-6. DMCA Takedown Templates
-7. Real Time Image Watermarking
-8. Custom Branded Watermark
-9. Account Verification
-10. Delete and Reprocess Pages
-11. Verified Account Status
-12. Website Copy Scanner (unlimited)
-13. Website Detective Tool
-14. Multiple Badge Management
-![Capture](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/picture.png)
-
-
 ### How to order?
 #### Option 1
 - [x] Contact me via forum
