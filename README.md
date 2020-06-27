@@ -17,7 +17,7 @@ Buy 10 = $65
 - [x] Contact me via forum (recommended)
 
 #### Option 2
-- [x] Send Personal Message ( facebook: [Erwin Pohan](https://p-store.net/akun/45124/jual-dan-aktivasi-akun-dmca-pro-lifetime) )
+- [x] Send Personal Message ( facebook: [Erwin Pohan](https://www.facebook.com/kewin.pohan) )
 - [x] Make payment
 - [x] Send login access Account DMCA, I will upgrade
 - [x] Done
