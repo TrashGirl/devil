@@ -21,7 +21,3 @@ Buy 10 = $65
 - [x] Make payment
 - [x] Send login access Account DMCA, I will upgrade
 - [x] Done
-
-#### Option 3
-- [x] Buy my service from trust marketplace [Here](https://p-store.net/akun/45124/jual-dan-aktivasi-akun-dmca-pro-lifetime)
-
