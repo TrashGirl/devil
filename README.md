@@ -1,7 +1,7 @@
 ## Open Reseller: Upgrade Account DMCA Pro Lifetime 
 
 Let's make money together :)
-Buy from me, sell to another  $10 - $15
+Buy from me and sell to you client  $10 - $15
 
 
 Buy 1 = $8
