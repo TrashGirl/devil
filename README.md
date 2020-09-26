@@ -1,3 +1,5 @@
+![Logo](https://rawcdn.githack.com/TrashGirl/-giveaway-/907632c28b0214d4e4151a7f9db6c959a0f989fe/dmca_logo.png)
+
 ## Open Reseller: Upgrade Account DMCA Pro Lifetime 
 
 Let's make money together :)
